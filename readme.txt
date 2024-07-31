@@ -1,2 +1,2 @@
-git my show
-on this time
+enjoy all the day now
+who and when
